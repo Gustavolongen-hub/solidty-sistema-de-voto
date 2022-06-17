@@ -1,0 +1,1 @@
+# solidty-vota-o-sistema
